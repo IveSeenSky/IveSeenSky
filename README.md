@@ -1,3 +1,3 @@
 <div align="center">
-  <img src="https://media1.tenor.com/m/l_R7ksoHCDAAAAAd/причина-тряски-тряска.gif" width="900" height="300"/>
+  <img src="https://www.youtube.com/watch?v=FVay7BFDTpI" width="900" height="300"/>
 </div>
